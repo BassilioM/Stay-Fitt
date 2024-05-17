@@ -1,1 +1,1 @@
-# Stay-Fitt
+# Stay-Fit
